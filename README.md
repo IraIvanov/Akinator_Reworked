@@ -36,4 +36,4 @@ Multiple files :white_check_mark:
 Warnings :negative_squared_cross_mark:      
 
 **Have fun!**     
-![Alt-текст](https://kidscreen.com/wp/wp-content/uploads/2017/10/Equestria-Girls.jpg)
+![Alt-текст](https://static.wikia.nocookie.net/equestriagirls/images/a/a1/Dash_and_Fluttershy_sing_next_to_Sunset_EG2.png/revision/latest/scale-to-width-down/1280?cb=20151115025754)
